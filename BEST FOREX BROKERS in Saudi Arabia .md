@@ -4,7 +4,7 @@ Forex trading is growing rapidly in Saudi Arabia, driven by increased awareness,
 
 ### ⚠️ Is Forex Trading Legal in Saudi Arabia?
 
-Yes, forex trading is legal in Saudi Arabia. The Saudi Central Bank (SAMA) regulates financial services and protects investors. Residents are allowed to trade with both local and international brokers. However, traders must ensure that the broker complies with Islamic finance principles and offers swap-free (interest-free) trading accounts.
+Yes, forex trading is legal in Saudi Arabia. The Saudi Central Bank [SAMA](http://www.sama.gov.sa/en-US/pages/default.aspx) regulates financial services and protects investors. Residents are allowed to trade with both local and international brokers. However, traders must ensure that the broker complies with Islamic finance principles and offers swap-free (interest-free) trading accounts.
 
 ---
 
